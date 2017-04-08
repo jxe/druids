@@ -1,10 +1,12 @@
-## The Curious Druids of Berlin
+## Greetings Potsdam concertgoers!
 
-Greetings Potsdam concertgoers!
+We'll have a game for everyone after the first band plays.
 
-Please [download the mp3 file for STAY IN TOUCH](events/lights-out/stay-in-touch.mp3). You'll need to gather a group of four players, put the mp3 file on each phone, then find Curious Joe.
+But if you can gather together four friends (or strangers) we have a game for you RIGHT NOW. It's called STAY IN TOUCH.
 
-And if you want to play CHARM WARS, just be near the stage after the first set!
+1. First, [download the mp3 file](events/lights-out/stay-in-touch.mp3). 
+2. You'll need to gather a group of four players, put the mp3 file on each phone, 
+3. FInally, find Curious Joe and he'll take you to a good spot to play.
 
 Yrs,
 
