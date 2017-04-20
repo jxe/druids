@@ -1,4 +1,4 @@
-## Greetings Potsdam concertgoers!
+## Greetings Berlin concertgoers!
 
 We'll have a game for everyone after the first band plays.
 
